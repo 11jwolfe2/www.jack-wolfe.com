@@ -1,0 +1,1 @@
+The Idea of this site is to document my projects and be the new host site for jack wolfes ideas.
